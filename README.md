@@ -1,4 +1,4 @@
-[![MasterHead](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRk7uGaH03vqUS1QhquARb-KDBiBb1dmGqmEoaozVP_K9wkKTELFJLLD7zm48IZ6rUV7ZA&usqp=CAU)](https://gowsika26.io)
+[![MasterHead](https://ridzeal.com/wp-content/uploads/2021/11/How-Software-Development-Company-Works.jpg)](https://gowsika26.io)
 
 
 <h1 align="center">Hi 👋, I'm Gowsika</h1>
